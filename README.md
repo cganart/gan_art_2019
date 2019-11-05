@@ -21,6 +21,7 @@ Post-Minimalism:
 * https://www.wikiart.org/en/christopher-wilmarth/the-whole-soul-summed-up-1979
 * https://www.wikiart.org/en/james-lee-byars/dress-for-five-persons-1969
 * https://www.wikiart.org/en/takamatsu-jiro/jiro-takamatsu-1983
+
 New Casualism:
 * https://www.wikiart.org/en/raoul-de-keyser/untitled-2004
 * https://www.wikiart.org/en/raoul-de-keyser/sketchy-cobaltic-blue-flag-2009
